@@ -1,2 +1,0 @@
- # lifing in my room
- 
